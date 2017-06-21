@@ -10,6 +10,7 @@
 **4. Fixing means freedom and independence.** As a fixer, you don't need to worry about wear and tear. Nothing stays new, so forget perfection.
 
 **5. Resist trends and needless upgrades.** They fuel ou
+DASDIADASDASDASDA
 
 
 dsadadjalksdjalsr throwaway culture.
