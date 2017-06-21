@@ -13,7 +13,7 @@
 DASDIADASDASDASDA
 
 
-dsadadjalksdjalsr throwaway culture.
+dsadadjalksdjalsr throwaway culture. sdlajdlkajslka
 
 **6. Don’t let companies treat you as a passive consumer.** Every time we spend money, we vote for the kinds of products we want to see succeed. Buy products that can be repaired.
 
