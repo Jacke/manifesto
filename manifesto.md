@@ -9,7 +9,10 @@
 
 **4. Fixing means freedom and independence.** As a fixer, you don't need to worry about wear and tear. Nothing stays new, so forget perfection.
 
-**5. Resist trends and needless upgrades.** They fuel our throwaway culture.
+**5. Resist trends and needless upgrades.** They fuel ou
+
+
+dsadadjalksdjalsr throwaway culture.
 
 **6. Don’t let companies treat you as a passive consumer.** Every time we spend money, we vote for the kinds of products we want to see succeed. Buy products that can be repaired.
 
