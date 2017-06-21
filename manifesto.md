@@ -14,7 +14,7 @@ DASDIADASDASDASDA
 
 
 dsadadjalksdjalsr throwaway culture. sdlajdlkajslka
-
+saxas
 **6. Don’t let companies treat you as a passive consumer.** Every time we spend money, we vote for the kinds of products we want to see succeed. Buy products that can be repaired.
 
 **7. A fixed thing is a beautiful thing.** Every fix, whether skillful or improvised, holds a story.
